@@ -1,0 +1,1 @@
+# OC-p6-solution_technique
